@@ -4,3 +4,6 @@ En traversant cette rue il se rendit compte de quelque chose il avait oublier se
 Il y avait une femme qui voulait aider.
 Mais elle a aussi glissé.
 Maintenant, ils sont tous les deux sur le sol.
+Un enfant passa également.
+Il tomba également.
+Quelle tragédie.
